@@ -1,2 +1,1 @@
-# AFTER
-“You’re my safe place, Tessa.”
+“I can’t imagine my life without you.”
