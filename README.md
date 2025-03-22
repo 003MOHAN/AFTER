@@ -1,1 +1,1 @@
-“I can’t imagine my life without you.”
+“Love is not a choice. It’s a need.”
